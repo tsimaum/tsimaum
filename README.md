@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Data Engeneering
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... @simaum_ on IG
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: He/His
 - ⚡ Fun fact: I'm also a Photographer/Videomaker and was a Professional Olimpic Fencing Athlete
 
 <!---
